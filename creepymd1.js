@@ -1,8 +1,8 @@
-//created by Danny
-//wa.me/255697608274
+//created by 𝔸𝕝𝕧𝕚𝕟𝕤
+//wa.me/256740761661
 //Deploy and enjoy
 //Credits (Creepy technology)
-//Follow our channel https://whatsapp.com/channel/0029VacQFw65Ui2gGv0Kwk1r
+//Follow our channel https://wa.me/256740761661
 
 
 
